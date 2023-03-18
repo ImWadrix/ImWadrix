@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi 👋, I'm Wadrix from Slovakia
 🔭 From Slovakia<br>🤝Knowledge of foreign languages: English B1, Slovak C2, German A2, France A1 and some slavic languages<br>🌱 I’m currently learning Spanish, English and C++
 
 
